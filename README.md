@@ -16,4 +16,4 @@ grandmother and the dining room. Warm color tones and soft lighting enhance the 
 9. Archeologists discover a generic plastic chair in the desert, excavating and dusting it with great care.
 
 
-## Free free to upload more hard prompts for Sora.
+## Feel free to upload more hard prompts for Sora.
